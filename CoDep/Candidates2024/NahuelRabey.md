@@ -12,7 +12,7 @@ Bueno, al grano, estas son las cosas que me preocupan:
     
 3.  Los **salarios docentes son bajísimos**, ninguno vive sólo de enseñar y **cuesta formar cuadros universitarios** para dar algunas materias, cómo Orga I y II.
     
-4.  **La violencia en la facultad**, sobre todo que el acoso está expulsando compañeras de la cursada, y que cada vez me entero de denuncias que no llegan a ningún lado.
+4.  **La violencia en la facultad**, sobre todo que el acoso está expulsando compañeras de la cursada, y que cada vez me entero de más denuncias que no llegan a ningún lado.
 
 
 Creo que **necesitamos preocuparnos por que la lucha universitaria llegue a una victoria**, sobre todo para resolver los problemas que coloqué antes. **Planteo hacer esto para lograrlo**:
